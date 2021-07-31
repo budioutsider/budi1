@@ -1,0 +1,2 @@
+# budi1
+mining
